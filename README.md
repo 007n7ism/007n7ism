@@ -10,3 +10,4 @@ wariai's ~~un~~offical daughter
 [rentry](https://rentry.co/prttyprincess)
 ![](https://64.media.tumblr.com/0b97a5cab831be25a7940bfa35612380/013f5c09db3a51b1-72/s75x75_c1/ea32f45245e111d7588a0e278aed2e7d15cd46c4.gifv)
 [main](https://github.com/rottenpaws)
+![](https://64.media.tumblr.com/4d49b04491370fe542757f00292cceb0/013f5c09db3a51b1-5a/s75x75_c1/caf7f95ecd31b5b8457dd09071316ae03066ba2e.gifv)
